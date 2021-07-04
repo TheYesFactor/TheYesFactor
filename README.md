@@ -1,0 +1,4 @@
+- Hi I'm YesFactor
+- I like to view java stuff and C++ and whatnot.
+- I'm learning java and C++ too
+- Contact my business mail: YesFactorEntertainment@gmail.com
